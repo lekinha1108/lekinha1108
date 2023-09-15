@@ -1,5 +1,5 @@
-### Hi there 👋
-
+### meu nome e erick 
+![](https://media.tenor.com/f9eBb3LV0O8AAAAM/neymar-neymar-jr.gif)
 <!--
 **lekinha1108/lekinha1108** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
